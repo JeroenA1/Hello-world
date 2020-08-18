@@ -1,2 +1,2 @@
 # Hello-world
-my exiting new hello world rep
+my exciting new hello world rep
